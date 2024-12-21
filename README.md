@@ -1,1 +1,1 @@
-# Persentase-Pengeluaran-per-Kapita-Sebulan-Makanan-dan-Bukan-Makanan-di-Daerah-Provisi-RIau-2022-2021
+# Persentase-Pengeluaran-per-Kapita-Sebulan-Makanan-dan-Bukan-Makanan-di-Daerah-Provisi-RIau-2021
